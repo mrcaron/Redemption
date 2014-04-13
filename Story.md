@@ -28,13 +28,13 @@ Unfolding Transformation
 
 What I _knew_ and then _experienced_ has been unfolding since that day. Immediately, I stopped smoking (everything). I found a bible in our house and started reading it. I was woken up by God early in the morning when I used to sleep until noon. I just started talking to God. I drove the six hour road trip to Sterling each week before coming to UIUC to be with those folks and worship Jesus who "saved me".
 
-I came to UIUC excited. I really don't think I've ever stopped being excited... but that first Quad Day. Whoa. I met Wager and there entered a guy who's been a dicipler, friend, shoulder to cry on, spiritual father. Wage and Janel shaped my early life, guys. I remember trying to pray off in the gardens next to FAR.
+I came to UIUC excited. I really don't think I've ever stopped being excited... but that first Quad Day. Whoa. I met Wager and there entered a guy who's been a dicipler, friend, shoulder to cry on, spiritual father. Wage and Janel shaped my early life, guys; many stories about those guys.
 
 I remember talking to God on the way back to FAR; "God, oh I HOPE that is the church where you want me to be! Those guys seem awesome!" I asked God for a sign and that night at the ilife rally, I won a door prize. BOOM, I was in. I jumped in a small group, lighting setup, the whole works. I did so much I went on probation my first semester! 
 
-Jesus is alive in me, and he was changing everything; my motivations for living, the kind of life I wanted, the words coming out of my mouth... everything was being reworked. There is story after story of his hand in my life. 
+Jesus is alive in me, and he was changing everything; my motivations for living, the kind of life I wanted, the words coming out of my mouth, the things that made my heart pitter patter, everything was being reworked. It's not all rosey. There's hardship, like this time I was dealing with a sinful behavior I needed to jettison... it was hitting me at work and my boss was friends with WW. Homefellowship was happening...(finish story).
 
-I've been to Minneapolis and Berlin as a missionary church planter. I'm in Madison as a father, physical and spiritual...
+There is story after story of his hand in my life, it is the unfolding of his purpose in me. He is revealing that I am an intentional creation. So are *you*.
 
 The Call
 --------
